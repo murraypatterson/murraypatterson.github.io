@@ -1,1 +1,0 @@
-# murraypatterson.github.io
